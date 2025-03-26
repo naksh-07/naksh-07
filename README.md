@@ -1,4 +1,4 @@
-# 👋 Hey there! I'm Naveen Amrawanshi | aka *naksh-07*  
+# 👋 Hey there! I'm Naveen Amrawanshi | aka *Naksh*  
 
 🚀 **Aspiring Developer** | 📖 **Reader of Murakami, Paulo Coelho, and Yuval Noah Harari** | 😂 **Stand-up Comedy Lover**  
 
